@@ -1,1 +1,0 @@
-# nategalit.github.io
